@@ -17,7 +17,7 @@ Location: Philadelphia, PA.
            -------- 
 
 Introduction                         - 
-Protection                           II. 
-Love                                 IX. 
-Trials                               XVIII. 
-Loyalty                              XXXIV. 
+Candles                              II. 
+Walks                                IX. 
+Delaware                             XVIII. 
+Triangle                             XXXIV. 
